@@ -28,10 +28,12 @@
 
 <div align="center">
 
-**Notion Link** | https://bit.ly/3KzsN9s
+**Study Notion** | https://bit.ly/3KzsN9s
 
 **Email** | chosunci@gmail.com
 
+**About Team** | bit.ly/37JWxlD
+     
 **Phone** | 010-2057-4164
 
       
