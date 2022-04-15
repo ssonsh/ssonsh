@@ -32,9 +32,6 @@
 
 **Email** | chosunci@gmail.com
 
-**About Team** | bit.ly/37JWxlD
-     
-**Phone** | 010-2057-4164
 
       
       
