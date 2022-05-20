@@ -28,6 +28,8 @@
 
 <div align="center">
 
+**Blog** | https://medium.com/ssonzk
+     
 **Study Notion** | https://bit.ly/3KzsN9s
 
 **Email** | chosunci@gmail.com
